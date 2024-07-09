@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zack.ioz you might know me from instagram if you play agar.io
 - 👀 I’m interested in making a arsenal exploit
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on my arsenal exploit
 - 📫 How to reach me ig: Zack.ioz
