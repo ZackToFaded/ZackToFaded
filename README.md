@@ -2,4 +2,4 @@
 - 👀 I’m interested in making a arsenal exploit
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on my arsenal exploit
-- 📫 How to reach me ig: Zack.ioz
+- 📫 If you would like to reach out to me dm on discord @xxzack
